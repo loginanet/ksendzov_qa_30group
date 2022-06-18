@@ -1,0 +1,1 @@
+# ksendzov_qa_30group_gitbash
